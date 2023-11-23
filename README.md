@@ -1,7 +1,1 @@
-# project1
-Luong Quan
-HT
-kkkkk
-
-
-hhhhhhhhh
+one upon a time, there was a young boy name Jack who love playing video game a lots
